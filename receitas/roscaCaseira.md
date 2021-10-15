@@ -25,6 +25,3 @@ Para a calda de açúcar, acrescente 3 xícaras de açúcar cristal a uma xícar
 ![WhatsApp Image 2021-10-14 at 15.32.57](C:\Users\giova\Downloads\WhatsApp Image 2021-10-14 at 15.32.57.jpeg)
 
 ![WhatsApp Image 2021-10-14 at 10.16.18](C:\Users\giova\Downloads\WhatsApp Image 2021-10-14 at 10.16.18.jpeg)
-
-
-
