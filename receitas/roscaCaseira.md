@@ -19,9 +19,3 @@ Bata tudo no liquidificador e coloque em uma vasilha. Aos poucos, despeje 1,5kg 
 ### Observações
 
 Para a calda de açúcar, acrescente 3 xícaras de açúcar cristal a uma xícara de água e leve ao fogo, mexendo até que levante fervura.
-
-### Receita do dia 14.10.2021
-
-![WhatsApp Image 2021-10-14 at 15.32.57](C:\Users\giova\Downloads\WhatsApp Image 2021-10-14 at 15.32.57.jpeg)
-
-![WhatsApp Image 2021-10-14 at 10.16.18](C:\Users\giova\Downloads\WhatsApp Image 2021-10-14 at 10.16.18.jpeg)
